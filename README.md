@@ -10,4 +10,4 @@
 - Позвони по номеру 8 (351) 268-82-09 и скажи что они ~~лохи~~
 
 ## Глава 3: *РАДУЙСЯ*
-[](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRL8Q7mYESBwnqe-Ty6SOzV3EqSGVWLfbglLoKQetNVKw&s)
+[бебебе](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRL8Q7mYESBwnqe-Ty6SOzV3EqSGVWLfbglLoKQetNVKw&s)
